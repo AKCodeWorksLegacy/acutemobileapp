@@ -45,5 +45,5 @@ We may revise this Privacy Policy from time to time. The most current version wi
 
 ## Contact Us
 
-For any questions about this Privacy Policy, please contact us at akcoding9154@gmail.com
+For any questions about this Privacy Policy, please contact us at admin@acutehealthcare.dev
 
